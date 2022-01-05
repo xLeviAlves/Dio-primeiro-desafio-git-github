@@ -14,4 +14,4 @@
 - 2 CAIXAS DE CREME DE LEITE
 - ARROZ BRANCO E BATATA PALHA P/ ACOMPANHAR
  
-### [Clique aqui para o modo de preparo](https://www.youtube.com/watch?v=qwLVaIJA4LQ)
+### [Clique aqui para ver o modo de preparo](https://www.youtube.com/watch?v=qwLVaIJA4LQ)
